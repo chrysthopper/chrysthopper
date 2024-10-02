@@ -2,7 +2,7 @@
 - 👀 I’m interested in estudar
 - 🌱 I’m currently learning pensamento computacional
 - 💞️ I’m looking to collaborate on inteligencia
-- 📫 How to reach me chrys0105
+- 📫 How to reach pelo insta: chrys0105
 - 😄 Pronouns: ele/dele
 - ⚡ Fun fact: namoro
 
